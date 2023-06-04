@@ -1,0 +1,3 @@
+- 👋 Hi
+- 👀 Love u
+- 📫 Cursed@msgsafe.io
